@@ -2,9 +2,9 @@
 
 ## Today's Quote
 
-> "There is no greater agony than bearing an untold story inside you."
+> "Education breeds confidence. Confidence breeds hope. Hope breeds peace."
 >
-> — Maya Angelou
+> — Confucius
 
 ---
 
