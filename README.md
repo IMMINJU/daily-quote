@@ -2,9 +2,9 @@
 
 ## Today's Quote
 
-> "Every day is an opportunity to a make a new happy ending."
+> "There is no greater agony than bearing an untold story inside you."
 >
-> — Jonathan Swift
+> — Maya Angelou
 
 ---
 
