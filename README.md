@@ -2,10 +2,10 @@
 
 ## Today's Quote
 
-> "Education breeds confidence. Confidence breeds hope. Hope breeds peace."
+> "Happiness is the absence of the striving for happiness."
 >
-> — Confucius
+> — Zhuangzi
 
 ---
 
-Updated: 2025-12-03 | Total quotes collected: 1
+Updated: 2025-12-04 | Total quotes collected: 2
