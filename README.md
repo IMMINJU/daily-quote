@@ -2,10 +2,10 @@
 
 ## Today's Quote
 
-> "Happiness is the absence of the striving for happiness."
+> "Confidence is consistency of thinking about what is possible and how to make it possible."
 >
-> — Zhuangzi
+> — John Eliot
 
 ---
 
-Updated: 2025-12-04 | Total quotes collected: 2
+Updated: 2025-12-05 | Total quotes collected: 3
