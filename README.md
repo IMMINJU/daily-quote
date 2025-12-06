@@ -2,10 +2,10 @@
 
 ## Today's Quote
 
-> "Confidence is consistency of thinking about what is possible and how to make it possible."
+> "Sometimes you have to shut your eyes, so you can see the real beauty."
 >
-> — John Eliot
+> — Kilian Jornet
 
 ---
 
-Updated: 2025-12-05 | Total quotes collected: 3
+Updated: 2025-12-06 | Total quotes collected: 4
