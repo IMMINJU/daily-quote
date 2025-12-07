@@ -2,10 +2,10 @@
 
 ## Today's Quote
 
-> "Sometimes you have to shut your eyes, so you can see the real beauty."
+> "You are what you do, not what you say you'll do."
 >
-> — Kilian Jornet
+> — Carl Jung
 
 ---
 
-Updated: 2025-12-06 | Total quotes collected: 4
+Updated: 2025-12-07 | Total quotes collected: 5
