@@ -2,10 +2,10 @@
 
 ## Today's Quote
 
-> "You are what you do, not what you say you'll do."
+> "Fashion fades, only style remains the same."
 >
-> — Carl Jung
+> — Coco Chanel
 
 ---
 
-Updated: 2025-12-07 | Total quotes collected: 5
+Updated: 2025-12-08 | Total quotes collected: 6
