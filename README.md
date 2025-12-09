@@ -2,10 +2,10 @@
 
 ## Today's Quote
 
-> "Fashion fades, only style remains the same."
+> "If you try to get rid of fear and anger without knowing their meaning, they will grow stronger and return."
 >
-> — Coco Chanel
+> — Deepak Chopra
 
 ---
 
-Updated: 2025-12-08 | Total quotes collected: 6
+Updated: 2025-12-09 | Total quotes collected: 7
