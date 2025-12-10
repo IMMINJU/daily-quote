@@ -2,10 +2,10 @@
 
 ## Today's Quote
 
-> "If you try to get rid of fear and anger without knowing their meaning, they will grow stronger and return."
+> "Always be a first rate version of yourself and not a second rate version of someone else."
 >
-> — Deepak Chopra
+> — Judy Garland
 
 ---
 
-Updated: 2025-12-09 | Total quotes collected: 7
+Updated: 2025-12-10 | Total quotes collected: 8
