@@ -2,10 +2,10 @@
 
 ## Today's Quote
 
-> "Always be a first rate version of yourself and not a second rate version of someone else."
+> "Death is as sure for that which is born, as birth is for that which is dead. Therefore grieve not for what is inevitable."
 >
-> — Judy Garland
+> — Bhagavad Gita
 
 ---
 
-Updated: 2025-12-10 | Total quotes collected: 8
+Updated: 2025-12-11 | Total quotes collected: 9
