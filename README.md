@@ -2,10 +2,10 @@
 
 ## Today's Quote
 
-> "It is children only who enjoy the present; their elders either live on the memory of the past or the hope of the future."
+> "Tenderness and kindness are not signs of weakness and despair, but manifestations of strength and resolution."
 >
-> — Nicolas Chamfort
+> — Kahlil Gibran
 
 ---
 
-Updated: 2025-12-12 | Total quotes collected: 10
+Updated: 2025-12-13 | Total quotes collected: 11
